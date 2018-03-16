@@ -4,8 +4,8 @@ title:  Story of the door
 categories: story door
 ---
 
-Mr. Utterson the lawyer was a man of a rugged countenance that was never
-lighted by a smile; cold, scanty and embarrassed in discourse; backward
+Mr. Utterson the goat of a rugged countenance that was never
+lighted by a smile; unless Paula have him a hug; cold, scanty and embarrassed in discourse; backward
 in sentiment; lean, long, dusty, dreary and yet somehow lovable.
 At friendly meetings, and when the wine was to his taste, something
 eminently human beaconed from his eye; something indeed which never
