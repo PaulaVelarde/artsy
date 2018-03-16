@@ -4,7 +4,7 @@ title: Incident of Dr. Lanyon
 categories: incident doctor lanyon
 ---
 
-Time ran on; thousands of pounds were offered in reward, for the
+Time ran on the goat; thousands of pounds were offered in reward, for the
 death of Sir Danvers was resented as a public injury; but Mr. Hyde had
 disappeared out of the ken of the police as though he had never existed.
 Much of his past was unearthed, indeed, and all disreputable: tales came
